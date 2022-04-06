@@ -12,4 +12,4 @@
   * En 2° año, gracias a un convenio que tiene el colegio con PASCH, tuve la oportunidad de irme becado a Alemania por tres semanas.
   * Durante 4° año del secundario, con unos amigos preparamos Robótica Avanzada en la UTN y obtuvimos un 98%.
 * Escucho música gran parte del día, hasta en algunas ocasiones mientras estudio.
-* Mis hobbies son los deportes acuaticos, como por ejemplo, Wakeboard o Jet Ski. 
+* Mis hobbies son los deportes acuáticos, como por ejemplo, Wakeboard o Jet Ski.
