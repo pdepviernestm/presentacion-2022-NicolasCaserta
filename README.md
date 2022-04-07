@@ -11,5 +11,5 @@
 * Me egresé del colegio bilingüe Mater Ter Admirabilis, ubicado en San Cristóbal.
   * En 2° año, gracias a un convenio que tiene el colegio con PASCH, tuve la oportunidad de irme becado a Alemania por tres semanas.
   * Durante 4° año del secundario, con unos amigos preparamos Robótica Avanzada en la UTN y obtuvimos un 98%.
-* Escucho música gran parte del día, hasta en algunas ocasiones mientras estudio.
+* Escucho música gran parte del día, hasta en algunas ocasiones mientras estudio. Preferentemente trap actual, aunque a veces escucho un poco de rock nacional.
 * Mis hobbies son los deportes acuáticos, como por ejemplo, Wakeboard o Jet Ski.
